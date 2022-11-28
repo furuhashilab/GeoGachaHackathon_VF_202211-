@@ -24,3 +24,7 @@
 11/22 作業コアタイム
 
 11/29 11:00〜 成果発表会（いつものルールで）
+
+
+## 発表スライド
+https://docs.google.com/presentation/d/1ui7FUlJDAaXWfR3P5kwYK6h8zj4uhyBm0cog1OFNE5g/edit?pli=1#slide=id.g19cb215edf5_1_31
